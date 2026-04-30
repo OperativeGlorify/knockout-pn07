@@ -1,4 +1,4 @@
-
+automatic Script for dandy's world is the best dandy's world Script, featuring invisibility and auto-sell. Safe and powerful for all your needs.
 
 
 
